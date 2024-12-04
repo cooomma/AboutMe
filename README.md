@@ -1,8 +1,10 @@
 Hi👋~ Nice to meet you 🙋🏼‍♂️
 
+- A digital nomad work from internet.
+
 - Was a streaming architect in [KKBOX](https://kkcompany.com) 📡 🎧.
 
-- A fan of [Nogizaka46](https://www.nogizaka46.com/), [milet](https://www.milet.jp/), [Aimer](https://www.aimer-web.jp/), [Yoasobi](https://music.youtube.com/channel/UCI6B8NkZKqlFWoiC_xE-hzA)
+- A fan of [Back Number](https://backnumber.info) [Nogizaka46](https://www.nogizaka46.com/), [milet](https://www.milet.jp/), [Aimer](https://www.aimer-web.jp/)
 
 - Hope to travel arround the world 🛫 🌏
 
